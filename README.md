@@ -53,7 +53,7 @@
 > **DO NOT** Install Vape Lite from another source or you could get **Hacked/Scammed.**
 
 <h1 align="center">
-  <a id="top"></a>💨 Thanks For Using Vape Lite [WiiZARDD's LEAK]! 💨
+  <a id="top"></a>💨 VAPE JUST GOT SMOKED! 💨
 </h1>
 
 <p align="center"> 
